@@ -1,1 +1,1 @@
-Gald to be a software engineer
+Glad to be a software engineer
